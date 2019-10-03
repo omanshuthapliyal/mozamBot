@@ -1,5 +1,5 @@
 
-[](https://i.ytimg.com/vi/ofp9mv8HE8E/maxresdefault.jpg)
+![Gold Moz](https://i.ytimg.com/vi/ofp9mv8HE8E/maxresdefault.jpg)
 
 ```
 
